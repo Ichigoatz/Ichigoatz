@@ -1,2 +1,2 @@
-ㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  <img src="https://github.com/Ichigoatz/Ichigoatz/blob/7cebbedbd6b20158cbe327e791d5a54b838dd64b/Untitled5_20250701085406.png" width="390" height="450" />  
-ㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤ        ![image alt](https://github.com/Ichigoatz/Ichigoatz/blob/1498c2f39ef8a8f9800b0a52f60748b48954a8f3/no.1.gif) Tord ![image alt](https://github.com/Ichigoatz/Ichigoatz/blob/dd14fca28c3adae311467ecb82f358e2315b2db6/fan.gif)
+ㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  <img src="https://github.com/Ichigoatz/Ichigoatz/blob/409e938f18aa4288ab430cdfb9413ec573f52bf3/Untitled5_20250701163051.png" width="390" height="450" />  
+ㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ   ㅤ    ![image alt](https://github.com/Ichigoatz/Ichigoatz/blob/b0895f45d7c7e6c3a0fb709ad1211d484a4cd4d3/adhd.gif) 
