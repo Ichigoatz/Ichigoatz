@@ -1,4 +1,4 @@
-<p align="center">hi guys
-
+<p align="center">wth is ichiruki eugh
+<p align="center">ICHIHIME 4EVER
 <div align="center">
-  <img width = "40%" src="https://github.com/Ichigoatz/Ichigoatz/blob/794a48de45574a4b0726d7814c5e535c26978a18/itch%20go.jpeg">
+  <img width = "50%" src="https://github.com/Ichigoatz/Ichigoatz/blob/36cd7af90541f2d657280c7baf75ee7b2317d578/ichihime.jpeg">
